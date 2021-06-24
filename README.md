@@ -1,6 +1,6 @@
-- 👋 Salut je m'appelle no name 
+- 👋 wee
 - 👀 Ni amour ni guerre
 - 🌱J'apprend rien wlh
-- 💞️ Collabore avk personne 
+- 💞️ Solo mon lossa
 - 📫 Wee : no name.#1717
 
